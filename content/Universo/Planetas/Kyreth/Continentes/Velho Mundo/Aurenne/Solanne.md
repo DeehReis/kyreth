@@ -1,0 +1,3 @@
+**Solanne**: É o coração espiritual de **Aurenne** e o berço institucional da Igreja da Aurora, cuja influência molda leis, costumes e legitimidade política em todo o continente. Embora menos desenvolvida economicamente que os territórios centrais da Aliança, **Solanne** abriga **Caelvalis**, uma cidade monumental, antiga e fortificada, centro religioso, militar e financeiro. Lar de poderosas ordens militares — como os Hellriders, a Ordem da Manopla e a Ordem do Sol — **Solanne** existe sob a proteção direta da **Aliança Aço-Prata**, mantendo o status de protetorado sagrado, intocável por sua importância simbólica e moral.
+
+![[Pasted image 20260107131845.png]]
